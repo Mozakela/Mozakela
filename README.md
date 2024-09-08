@@ -5,7 +5,7 @@
 - 📫 How to reach me:
 - Instagram handle:[@skrach___](https://www.instagram.com/skrach___)
 - 😄 Pronouns: he/his
-- ⚡ Fun fact: you are gay
+- ⚡ Fun fact: Touching grass feels refreshing and grounding, both physically and mentally
 
 <!---
 Mozakela/Mozakela is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
